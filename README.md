@@ -1,7 +1,7 @@
 # 讲道
 
 ### 马太福音
-   [天国的钥匙（马太福音16:19）](https://china-lutheran-synod/sermons/Matthew1619)
+   [天国的钥匙（马太福音16:19）](Matthew1619)
 
 ### 罗马书
 
