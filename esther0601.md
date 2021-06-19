@@ -6,6 +6,8 @@
 
 译者：陈张
 
+[音频下载](https://link.jscdn.cn/1drv/aHR0cHM6Ly8xZHJ2Lm1zL3UvcyFBaW5LWUhaYVJhLW5sRFl4bzFZNGdJMG9xWmJSP2U9dzJNWWNF.mp3)  
+
 *那夜王睡不着觉，吩咐人取历史书，就是史籍，念给他听，发现书上写着：王有两个守门的太监辟探和提列，想要下手害亚哈随鲁王，末底改告发了这件事。王说：“末底改做了这事，有没有赐给他什么尊荣或高位呢？”伺候王的臣仆说：“没有赐给他什么。”王说：“谁在院子里？”那时哈曼正进入王宫的外院，要请王把末底改挂在他所预备的木架上。王的臣仆对他说：“看哪，哈曼站在院子里。”王说：“叫他进来。”哈曼就进去。王对他说：“王所喜爱要赐尊荣的人，当如何待他呢？”哈曼心里说：“王所喜爱要赐尊荣的人，除了我，还有谁呢？”哈曼就对王说：“王所喜爱要赐尊荣的人，当把王所穿的王袍拿来，牵了戴冠的御马，把王袍和御马都交给王一个极尊贵的大臣，吩咐人把王袍给王所喜爱要赐尊荣的人穿上，领他骑着御马走遍城里的广场，在他面前宣告：‘王所喜爱要赐尊荣的人，就是这样待他。’”王对哈曼说：“你速速把这王袍和御马，照你所说的，向坐在朝门的犹太人末底改去做。凡你所说的，一样都不可缺。”于是哈曼把王袍给末底改穿上，领他骑着御马走遍城里的广场，在他面前宣告：“王所喜爱要赐尊荣的人，就是这样待他。”末底改仍回到朝门，哈曼却忧忧闷闷地蒙着头，急忙回家去了。哈曼把所遭遇的一切都说给他妻子细利斯和他所有的朋友听。他的智囊团和他的妻子细利斯对他说：“你在末底改面前开始败落；他既是犹太人，你必不能胜过他，终必在他面前败落。”他们正跟哈曼说话的时候，王的几位太监来了，催哈曼快去赴以斯帖所预备的宴席。(以斯帖记 6:1-14)*
 
 If you ask a random person what special day today is, I’m guessing you might just get a blank stare. I suppose if someone is really informed on things in Africa, they might say it’s Africa Day, celebrating the founding of the African Union. Or if they’re really informed about public awareness holidays, they might say it’s International Missing Children’s Day. But more than likely, even if you’re in the greeting card aisle at the supermarket, you might have to tell your new friend that today is also Ascension Day, and then you might just get a “Huh?” or an “Oh yeah, that too.”
