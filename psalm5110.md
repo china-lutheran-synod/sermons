@@ -4,6 +4,8 @@
 
 作者：张崇峰
 
+[音频下载](https://link.jscdn.cn/1drv/aHR0cHM6Ly8xZHJ2Lm1zL3UvcyFBaW5LWUhaYVJhLW5sRm56MVJXSUNJbHJHVXAzP2U9MlU1TmdV.m4a) 
+
 	10 神阿，求你为我造清洁的心，使我里面重新有正直的灵。（正直或作坚定）。
 
 	11 不要丢弃我，使我离开你的面。不要从我收回你的圣灵。
