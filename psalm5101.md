@@ -4,6 +4,8 @@
 
 作者：张崇峰
 
+[音频下载](https://link.jscdn.cn/1drv/aHR0cHM6Ly8xZHJ2Lm1zL3UvcyFBaW5LWUhaYVJhLW5sRnA0c1U0cU1yaTZ4SFM3P2U9NDFuMGNo.m4a) 
+
 	大卫与拔示巴同室以后，先知拿单来见他。他作这诗，交与伶长。
 
 	1 神阿，求你按你的慈爱怜恤我，按你丰盛的慈悲涂抹我的过犯。
