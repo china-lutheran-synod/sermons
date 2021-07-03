@@ -4,6 +4,8 @@
 
 作者：张崇峰
 
+[音频下载](https://link.jscdn.cn/1drv/aHR0cHM6Ly8xZHJ2Lm1zL3UvcyFBaW5LWUhaYVJhLW5sSDA0WS1pUnNkd2phcGlyP2U9VDhsSmE2.mp3) 
+
 **主题：耶和华指出人禁食时错误的态度和目的，并指出正确的禁食是怎么**
 
 **目的：转离所行的恶，做神喜悦的事情，是真正的悔改。**
