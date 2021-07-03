@@ -4,6 +4,8 @@
 
 作者：张崇峰
 
+[音频下载](https://link.jscdn.cn/1drv/aHR0cHM6Ly8xZHJ2Lm1zL3UvcyFBaW5LWUhaYVJhLW5sRzlrSUFQTnlvaFdhTzlYP2U9NFR2aHVT.mp3) 
+
 	以东人多益来告诉扫罗说，大卫到了亚希米勒家。那时，大卫作这训诲诗，交与伶长。
 
 	1 勇士阿，你为何以作恶自夸。神的慈爱是常存的。
