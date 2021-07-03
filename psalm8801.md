@@ -4,6 +4,8 @@
 
 作者：张崇峰
 
+[音频下载](https://link.jscdn.cn/1drv/aHR0cHM6Ly8xZHJ2Lm1zL3UvcyFBaW5LWUhaYVJhLW5sR2tXN2dPQk1vVTdDRjhSP2U9ZVY0SFlL.m4a) 
+
 	可拉后裔的诗歌，就是以斯拉人希幔的训诲诗，交与伶长。调用麻哈拉利暗俄。
 
 	1 耶和华拯救我的神阿，我昼夜在你面前呼吁。
