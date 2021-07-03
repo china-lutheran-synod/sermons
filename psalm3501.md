@@ -4,6 +4,8 @@
 
 作者：张崇峰
 
+[音频下载](https://link.jscdn.cn/1drv/aHR0cHM6Ly8xZHJ2Lm1zL3UvcyFBaW5LWUhaYVJhLW5sSEFDcVhqUkk2SFlXdVpGP2U9Q3lnbGVE.mp3) 
+
 	1 （大卫的诗。）耶和华阿，与我相争的，求你与他们相争。与我相战的，求你与他们相战。
 	
 	2 拿着大小的盾牌，起来帮助我。
