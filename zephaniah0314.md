@@ -6,6 +6,8 @@
 
 译者及再创作者：陈张
 
+[音频下载](https://link.jscdn.cn/1drv/aHR0cHM6Ly8xZHJ2Lm1zL3UvcyFBaW5LWUhaYVJhLW5sR1RPSFNMWmhTLWR4QXcxP2U9UVg5am8y.m4a) 
+
 	14 锡安的民哪，应当歌唱！
 	以色列啊，应当欢呼！
 	耶路撒冷的民哪，应当满心欢喜快乐！
