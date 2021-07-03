@@ -4,6 +4,8 @@
 
 作者：张崇峰
 
+[音频下载](https://link.jscdn.cn/1drv/aHR0cHM6Ly8xZHJ2Lm1zL3UvcyFBaW5LWUhaYVJhLW5sSFV0RFliRlNIbm05Nk9DP2U9dFhNWTA3.mp3) 
+
 	1 （大卫的诗。）地和其中所充满的，世界和住在其间的，都属耶和华。
 	
 	2 他把地建立在海上，安定在大水之上。
