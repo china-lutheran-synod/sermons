@@ -4,7 +4,7 @@
 
 作者：张崇峰
 
-https://link.jscdn.cn/1drv/aHR0cHM6Ly8xZHJ2Lm1zL3UvcyFBaW5LWUhaYVJhLW5sR1dTNnNGV0o5NHN2ODBPP2U9MWxZUHRR.m4a
+[音频下载](https://link.jscdn.cn/1drv/aHR0cHM6Ly8xZHJ2Lm1zL3UvcyFBaW5LWUhaYVJhLW5sR1dTNnNGV0o5NHN2ODBPP2U9MWxZUHRR.m4a) 
 
 1、 很多研究圣经的学者或牧师，都会使用一款叫logos的圣经软件。我很喜欢这个软件，它让那种需要参考不同的书籍的研究和学习变得更有效率。所以我买了不少书，花了很多钱，也有时把这个软件推荐给需要的朋友。但是，这个软件有一件事让我特别厌恶，就是他的商业气息。之前，网站有一句广告语是这样写的：按着你信心的大小，建造你个人的图书馆。你可以说我较真，也可以说我过于敏感。但是这样的广告在我看来可以算上邪恶了。因为为了卖更多的书，他暗示你，你的个人图书馆太小，只能是因为你信心小的缘故。反过来，他鼓励你相信，你不断花钱买书的行为，是敬虔的，是信心大的结果，而不是贪婪和以知识当偶像。
 
