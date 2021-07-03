@@ -4,6 +4,8 @@
 
 作者：张崇峰
 
+[音频下载](https://link.jscdn.cn/1drv/aHR0cHM6Ly8xZHJ2Lm1zL3UvcyFBaW5LWUhaYVJhLW5sSG5hU2wwcF8xMUdGSXZTP2U9Z3BIZnUz.mp3) 
+
 	【路10:38】 他们走路的时候，耶稣进了一个村庄。有一个女人名叫马大，接他到自己家里。
 
 	【路10:39】 她有一个妹子名叫马利亚，在耶稣脚前坐着听他的道。
