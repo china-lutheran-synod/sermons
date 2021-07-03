@@ -6,6 +6,8 @@
 
 译者及再创作者：邱良杰
 
+[音频下载](https://link.jscdn.cn/1drv/aHR0cHM6Ly8xZHJ2Lm1zL3UvcyFBaW5LWUhaYVJhLW5sUV80MDFEcUlFXzllR1hnP2U9bDVpV0tJ.mp3) 
+
     17:1 以色列全会众都遵耶和华的吩咐，按着站口从汛的旷野往前行，在利非订安营。百姓没有水喝，  
 
     17:2 所以与摩西争闹，说，给我们水喝吧。摩西对他们说，你们为甚么与我争闹，为甚么试探耶和华呢？  
