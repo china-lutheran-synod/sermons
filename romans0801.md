@@ -2,7 +2,7 @@
 
 #### 罗马书 8:1-17
 
-作者：邱良杰
+作者：陈张
 
 [音频下载](https://link.jscdn.cn/1drv/aHR0cHM6Ly8xZHJ2Lm1zL3UvcyFBaW5LWUhaYVJhLW5sVGRacEFRaUlxc3JnOHN6P2U9dllmNGti.m4a)  
 
