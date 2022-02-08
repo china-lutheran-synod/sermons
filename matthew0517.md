@@ -1,8 +1,10 @@
-## 胜过法利赛人的义
+## 胜过法利赛人的义1
 
 #### 马太福音 5:17-20
 
 作者：张崇峰
+
+[音频下载](https://link.jscdn.cn/1drv/aHR0cHM6Ly8xZHJ2Lm1zL3UvcyFBaW5LWUhaYVJhLW5sanV2d180OHNyeXNVQVJWP2U9MnkxTHF6.m4a)  
 
 	5:17 	「不要以为我来是要废掉律法和先知。我来不是要废掉，而是要成全。 
 	
