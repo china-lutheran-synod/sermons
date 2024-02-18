@@ -1,8 +1,8 @@
-﻿## 这风声传遍了那地方
+﻿## 这风声传遍了那地方（上）
 
 #### 马太福音 9:18-26
 
-作者：陈张
+作者：张崇峰
 
 [音频下载](https://dlink.host/1drv/aHR0cHM6Ly8xZHJ2Lm1zL3UvcyFBaW5LWUhaYVJhLW5tU1Q2aU9YNnRxQjVLNmtSP2U9UzloZWJn.mp3)  
 
